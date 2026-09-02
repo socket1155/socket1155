@@ -1,7 +1,7 @@
 -  Hi, I’m @Noob-Dev990
 -  I’m interested in building games and websites.
 -  I’m currently learning Java
--  How to reach me - Reddit- noob_lel990 [DELETED] Stoat.chat- noob_lel990#6074
+-  How to reach me - 
 -  Pronouns: He/Him
 -  Currently working on 
 <!---
